@@ -1,3 +1,3 @@
 # Old Articles
 
-> List with the old articles
+> Lista dos antigos artigos (antes de mudar para o Medium)
